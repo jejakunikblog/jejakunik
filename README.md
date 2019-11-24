@@ -1,0 +1,2 @@
+# jejakunik
+kode link partner
